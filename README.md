@@ -1,2 +1,2 @@
-# revolusi-2020
+# resolusi-2021
 Repository untuk menyimpan rencana kedepan
